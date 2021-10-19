@@ -22,3 +22,12 @@ https://zephyo.itch.io/come-alive
 
 The Keeper by Comp-3 Interactive
 https://comp3interactive.itch.io/the-keeper
+
+Saunter by BirchTree
+https://birchtree.itch.io/saunter
+
+The Salatroitsk Incident by Joseph Whitehead
+https://drunkardwolf.itch.io/the-salatroisk-incident
+
+Dark Hotel by Codeless Man Games
+https://codeless-man-games.itch.io/dark-hotel
