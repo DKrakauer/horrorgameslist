@@ -1,4 +1,4 @@
-# horrorgameslist
+# horror games list
 Love, Sam by Korean Linguistics Lab
 https://store.steampowered.com/app/1073820/Love_Sam/
 
